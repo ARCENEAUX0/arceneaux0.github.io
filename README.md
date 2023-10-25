@@ -24,6 +24,15 @@
 * Language learning
 * Meditation 
 
+# Skills
+* Organizational and multitasking abilities
+* Strong communication and interpersonal skills
+* Documentation and record management
+* Regulatory compliance and risk management
+* Training and development
+* Automated systems proficiency
+* Cross-cultural management
+
 # Contact Info
 [Web Page](https://arceneaux0.github.io)
 [LinkedIn](https://www.linkedin.com/in/laurenarceneaux/)
