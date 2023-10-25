@@ -11,4 +11,11 @@
 * BBA Hospitality Industry Management - Payap University
 
 # Experience
+* Ground Safety Manager - United States Marine Corps
+* Range Facility Management Support Systems Functional Administrator - United States Marine Corps
+* Marine Air Clearance Authoity Logistics Supervisor - United Stated Marine Corps
+* Distribution Management Specialist - United States Marine Corps
+* Passenger Travel Specialist - United States Marine Corps
+
+# Interests
 
