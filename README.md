@@ -18,6 +18,11 @@
 * Passenger Travel Specialist - United States Marine Corps
 
 # Interests
+* Volunteerig and community involvement
+* Marketing
+* Travel
+* Language learning
+* Meditation 
 
 # Contact Info
 [Web Page](https://arceneaux0.github.io)
