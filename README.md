@@ -19,3 +19,8 @@
 
 # Interests
 
+# Contact Info
+[Web Page](https://arceneaux0.github.io)
+[LinkedIn](https://www.linkedin.com/in/laurenarceneaux/)
+[X](https://www.x.com/arcencodes)
+
