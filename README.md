@@ -18,7 +18,7 @@
 * Passenger Travel Specialist - United States Marine Corps
 
 # Interests
-* Volunteerig and community involvement
+* Volunteering and community involvement
 * Marketing
 * Travel
 * Language learning
